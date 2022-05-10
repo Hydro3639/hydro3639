@@ -15,5 +15,3 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ![](https://hit.yhype.me/github/profile?user_id=33851080)
-
-<a href="https://www.revolvermaps.com/livestats/5g11zlnk45z/"></a>
